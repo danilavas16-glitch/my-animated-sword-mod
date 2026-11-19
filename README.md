@@ -1,0 +1,1 @@
+# my-animated-sword-mod
